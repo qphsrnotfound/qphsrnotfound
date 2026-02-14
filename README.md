@@ -16,7 +16,7 @@
     <p align="center">
 𝙶𝚎𝚕𝚢𝚊 𝚘𝚛 𝙿𝚑𝚊𝚜𝚎𝚛&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;𝟸𝟶 𝚢𝚎𝚊𝚛𝚜 𝚘𝚕𝚍&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;𝙷𝚎/𝚂𝚑𝚎
 <p align="center">
-  `𝚙𝚕𝚎𝚊𝚜𝚎 𝚙𝚕𝚎𝚊𝚜𝚎 𝚛𝚎𝚊𝚍 𝚖𝚢 𝚌𝚊𝚛𝚛𝚍 𝚋𝚎𝚏𝚘𝚛𝚎 𝚏𝚘𝚕𝚕𝚘𝚠𝚒𝚗𝚐/𝚏𝚛𝚒𝚎𝚗𝚍𝚒𝚗𝚐!!!
+  `𝚙𝚕𝚎𝚊𝚜𝚎 𝚙𝚕𝚎𝚊𝚜𝚎 𝚛𝚎𝚊𝚍 𝚖𝚢 𝚜𝚝𝚛𝚊𝚠 𝚋𝚎𝚏𝚘𝚛𝚎 𝚏𝚘𝚕𝚕𝚘𝚠𝚒𝚗𝚐/𝚏𝚛𝚒𝚎𝚗𝚍𝚒𝚗𝚐!!!
     </p>
     <p align="center">
   𝙸𝚏 𝚢𝚘𝚞 𝚊𝚛𝚎 𝚛𝚊𝚌𝚒𝚜𝚝, 𝚑𝚘𝚖𝚘𝚙𝚑𝚘𝚋𝚒𝚌, 𝚝𝚛𝚊𝚜𝚗𝚙𝚑𝚘𝚋𝚒𝚌 𝚘𝚛 𝚊𝚗𝚢 𝚘𝚏 𝚝𝚑𝚘𝚜𝚎 𝚜𝚝𝚊𝚢 𝚏𝚊𝚛 𝚊𝚠𝚊𝚢 𝚏𝚛𝚘𝚖 𝚖𝚎 𝚝𝚑𝚊𝚗𝚔 𝚢𝚘𝚞.`<br> <br>

@@ -1,27 +1,35 @@
-
-<p align="left"><img src="https://64.media.tumblr.com/bc00a7f31c49f6fed33966c2d3e0696c/737467bbcde0be76-7a/s540x810/30caae8d2bcf2ffcc85bb2331789a7e5493af242.gifv" width="150"></p>
-</p>
-<p align="center">
+<p align="center"><img src="https://i.pinimg.com/originals/a9/c0/69/a9c069b8ebe2a8aa59d5d5875c1af2e6.png?nii=t" width="1000">
+   <p align="center">
 ~"𝙸 𝚞𝚜𝚎𝚍 𝚝𝚘 𝚋𝚎 𝚊𝚏𝚛𝚊𝚒𝚍 𝚘𝚏 𝚕𝚘𝚜𝚒𝚗𝚐 𝚖𝚢 𝚖𝚎𝚖𝚘𝚛𝚢. 𝚆𝚑𝚊𝚝 𝙸 𝚠𝚘𝚞𝚕𝚍𝚗'𝚝 𝚐𝚒𝚟𝚎 𝚝𝚘 𝚏𝚘𝚛𝚐𝚎𝚝 𝚊 𝚝𝚑𝚒𝚗𝚐 𝚘𝚛 𝚝𝚠𝚘 𝚗𝚘𝚠. 𝙼𝚎𝚖𝚘𝚛𝚢 𝚐𝚒𝚟𝚎𝚜 𝚖𝚘𝚖𝚎𝚗𝚝𝚜 𝚒𝚖𝚖𝚘𝚛𝚝𝚊𝚕𝚒𝚝𝚢, 𝚋𝚞𝚝 𝚏𝚘𝚛𝚐𝚎𝚝𝚏𝚞𝚕𝚗𝚎𝚜𝚜 𝚙𝚛𝚘𝚖𝚘𝚝𝚎𝚜 𝚊 𝚑𝚎𝚊𝚕𝚝𝚑𝚢 𝚖𝚒𝚗𝚍. 𝙸𝚝'𝚜 𝚐𝚘𝚘𝚍 𝚝𝚘 𝚏𝚘𝚛𝚐𝚎𝚝."`
 
-   </p>
-<p align="center">
+<p align="center"><img src="https://sun9-34.userapi.com/s/v1/ig2/799I7zbBHCtd86yGP-yvv03IVsxuSY6ktGJln8yzOM0Xb9MZIFYWG3NLNwJsm-pZsQjpP0-Q3sWp5u02s9Sah1xy.jpg?quality=95&as=32x15,48x22,72x34,108x50,160x74,240x112,360x168,480x223,540x251,640x298&from=bu&u=gLrrdye6zGwcYtsUXKbjVz5dF4ywGRvIBIJp_ifF908&cs=640x0" width="2000"></p>
+ <img src="https://c.tenor.com/VTJqEYl5xwQAAAAC/tenor.gif" width="1200"/>
+</p>
+<img align="right" src="https://sun9-32.userapi.com/s/v1/ig2/jiOaYbv2vRHg2w57SPLT3Tc2u9cyTh_-4wZ9eh-eht8hURcDbQENFosynTrQ7VH6hiP33S4fejghURu5OCqMRiBW.jpg?quality=95&as=32x33,48x49,72x73,108x110,160x163,240x245,360x367,480x490,540x551,640x653&from=bu&u=880D3x_htBOHq-sjCms89QIiaea0ZzAyquharYc9pO8&cs=640x0" witdh="450" height="560">
 
-<p align="right"><img src="https://64.media.tumblr.com/182957e32ad7055f74bd711a5e673239/737467bbcde0be76-77/s540x810/3cfb77bcdf1830d477067fd82b98fb41f3c2c15c.gifv" width="150"></p>
+
+$𝙶𝚎𝚕𝚢𝚊$ / $𝙿𝚑𝚊𝚜𝚎𝚛$ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;𝟸𝟶 $𝚢𝚎𝚊𝚛𝚜$ $𝚘𝚕𝚍$ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $𝙷𝚎$ / $𝚂𝚑𝚎$
+<details>
+<summary>$About me$ !  </summary>
+$i'm$ $a$ $very$ $easy$ $going$ $person$ $and$ $i$ $like$ $a$ $lot$ $of$ $fandoms$ $so$ $don't$ $be$ $afraid$ $to$ $write$, $it$ $will$ $never$ $bother$ $me$.
+$i$ $overthink$ $ $much$. $i'm$ $shy$ $if$ $i$ $don't$ $really$ $know$ $you$. $but$ $if$ $i$ $feel$ $comfortable$, $i$ $might$ $not$ $even$ $shut$ $up$. ;)
+$please$ $don't$ $make$ $me$ $do$ $anything$ $i$ $clearly$ $don't$ $want$ $to$ $do$. $sometimes$ $that$ $includes$ $talking$.
+$when$ $i'm$ $overwhelmed$, $i$ $may$ $be$ $inattentive$, $so$ $if$ $i$ $miss$ $something$ $you're$ $saying$, $i$ $apologize$. $sometimes$ $it$ $becomes$ $too$ $difficult$ $to$ $comprehend$!!
+</details>
+
+<details>
+<summary>$Interests$ !  </summary>
+$verity$ ; $hannibal$ ; $supernatural$ ; $s.t.a.l.k.e.r$ ; $metro$ ; $horror$ $mod's$ $minecraft$ , $portal$ ; $my$ $hero$ $academia$ ; $detroit$ : $become$ $human$ ; $max$ $payne$ ; $assassin`s$ $creed$ ; $farcry$ ; $bananabussquad$ ; $metal$ $gear$ ; $hazbinhotel$ ; $silent$ $hill$ ; $resident$ $evil$ : $4$ / $village$ ; $honkai$ $star$ $rail$ ; $genshin$ $impact$ ; $mcyt$ ( $dsmp$ , $qsmp$ , $msh2$ \ $3$ ; $5opka$ ) ; $bungou$ $stray$ $dogs$ ; $jujutsu$ $kaisen$ ; $bluelock$ ; $demon$ $slayer$ ; $patriotism$ $moriarty$ ; $danganronpa$ \ $danganronpa$ $online$ ; $ranfren$ ; $poison$ $bugs$ ; $mandela$ $catalogue$ ; $eddsworld$ ; $fnaf$ ; $ut$ ( $+$ $au$ ) ; $twitch$ $streamers$ ; $digital$ $circus$ ; $helluvaboss$ ; $squidgame$ ; $cookierun$ : $kingdom$ , $and$ $other$ ...
+</details>
+
+<details>
+<summary>$Dni$!  </summary>
+$basic$ $dni$ $criteria$. ($if$ $you$ $tolerate$ $or$ $support$ $any$ $of$ $it$) $spawnism$ $and$ $anyone$ $who$ $endorses$ $and$ $support$ $any$ $kind$ $of$ $cults$. $i$ $don´t$ $rlly$ $fw$ $roleplay$ $accounts$. $any$ $kind$ $of$ $ships$. $i$ $do$ $it$ $with$ $my$ $beautiful$ $pookie$ $wookie$, $not$ $you$
+</details>
+
+
+ <img src="https://c.tenor.com/VTJqEYl5xwQAAAAC/tenor.gif" width="1200"/>
 </p>
-<p align="center">
-  <<︶⊹︶︶.ᐟ.ᐟ ✧.ᐟ.ᐟ ︶︶⊹︶>>
-  </p>
-    <p align="center"><img src="https://64.media.tumblr.com/2e4374d919b086a99913e65828dcdec5/659ebe415f308bbb-19/s2048x3072/9b56c7ffe008cc11aea391c8bec33b84ebb646c0.pnj" width="150"></p>
-    <p align="center">
-𝙶𝚎𝚕𝚢𝚊 𝚘𝚛 𝙿𝚑𝚊𝚜𝚎𝚛&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;𝟸𝟶 𝚢𝚎𝚊𝚛𝚜 𝚘𝚕𝚍&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;𝙷𝚎/𝚂𝚑𝚎
-<p align="center">
-  `𝚙𝚕𝚎𝚊𝚜𝚎 𝚙𝚕𝚎𝚊𝚜𝚎 𝚛𝚎𝚊𝚍 𝚖𝚢 𝚜𝚝𝚛𝚊𝚠 𝚋𝚎𝚏𝚘𝚛𝚎 𝚏𝚘𝚕𝚕𝚘𝚠𝚒𝚗𝚐/𝚏𝚛𝚒𝚎𝚗𝚍𝚒𝚗𝚐!!!
-    </p>
-    <p align="center">
-  𝙸𝚏 𝚢𝚘𝚞 𝚊𝚛𝚎 𝚛𝚊𝚌𝚒𝚜𝚝, 𝚑𝚘𝚖𝚘𝚙𝚑𝚘𝚋𝚒𝚌, 𝚝𝚛𝚊𝚜𝚗𝚙𝚑𝚘𝚋𝚒𝚌 𝚘𝚛 𝚊𝚗𝚢 𝚘𝚏 𝚝𝚑𝚘𝚜𝚎 𝚜𝚝𝚊𝚢 𝚏𝚊𝚛 𝚊𝚠𝚊𝚢 𝚏𝚛𝚘𝚖 𝚖𝚎 𝚝𝚑𝚊𝚗𝚔 𝚢𝚘𝚞.`<br> <br>
-</p>
-    <p align="center">
-꒰ 𝚂𝚘𝚖𝚎𝚝𝚒𝚖𝚎𝚜 𝙸 𝚖𝚊𝚢 𝚗𝚘𝚝 𝚛𝚎𝚜𝚙𝚘𝚗𝚍 𝚝𝚘 𝚢𝚘𝚞. 𝙸𝚝'𝚜 𝚗𝚘𝚝 𝚙𝚎𝚛𝚜𝚘𝚗𝚊𝚕. 𝙸'𝚖 𝚓𝚞𝚜𝚝 𝚝𝚒𝚛𝚎𝚍, 𝚋𝚞𝚜𝚢, 𝚘𝚛 𝚗𝚘𝚝 𝚒𝚗 𝚝𝚑𝚎 𝚖𝚘𝚘𝚍 𝚝𝚘 𝚝𝚊𝚕𝚔. 𝚃𝚑𝚒𝚜 𝚍𝚘𝚎𝚜𝚗'𝚝 𝚊𝚙𝚙𝚕𝚢 𝚝𝚘 𝚖𝚢 𝚌𝚕𝚘𝚜𝚎 𝚏𝚛𝚒𝚎𝚗𝚍𝚜. ;
-      </p>
-<p align="center"><img src="https://i.pinimg.com/736x/ba/e4/83/bae483c29c193b0bc9eab787cc0c4f87.jpg" width="500"></p>
+ <img src="https://psv4.userapi.com/s/v1/d2/0pgazStjd4tTupvNKksUNzKYODb5c-jyAB2Hd986mldqeL-zNnn_c_MF5oylsAx6qf5NSC1cQrQqYVPl-i2f-sXaGgiPHnEQraTW9fn1bTi1hpse9w34FsNgsBH2lIIpWHwINF9vz8Nt/GIF_20260709_232310_572.gif" width="1200"/>
+ <p align="center"><img src="https://i.pinimg.com/originals/a9/c0/69/a9c069b8ebe2a8aa59d5d5875c1af2e6.png?nii=t" width="1000">
+  <img src="https://komarev.com/ghpvc/?username=qphsrnotfound&label=YOU+MINE&color=c2cc6c&style=flat-square" alt="$YOU$ $MINE$" />

@@ -1,14 +1,13 @@
-<p align="center"><img src="https://i.pinimg.com/originals/a9/c0/69/a9c069b8ebe2a8aa59d5d5875c1af2e6.png?nii=t" width="1000">
+<p align="center"><img src="https://sun9-85.vkuserphoto.ru/s/v1/ig2/VSvVikw93DHzmR7S4n-8O4Bnwm6eUng0g-7s4CEjisdTlAKbDueVukhy2tWt0T-iODGwSc52xCyKieTia8L04hb5.jpg?quality=95&as=32x18,48x27,72x40,108x61,160x90,240x135,360x202,480x270,540x304,640x360,720x405,1080x607,1280x720,1440x810,2560x1440&from=bu&u=cgU6YsVK8n-UiWx_DgLzDeGhEiBfrZns4g0wVEvIN20&cs=2560x0" width="1000">
    <p align="center">
 ~"𝙸 𝚞𝚜𝚎𝚍 𝚝𝚘 𝚋𝚎 𝚊𝚏𝚛𝚊𝚒𝚍 𝚘𝚏 𝚕𝚘𝚜𝚒𝚗𝚐 𝚖𝚢 𝚖𝚎𝚖𝚘𝚛𝚢. 𝚆𝚑𝚊𝚝 𝙸 𝚠𝚘𝚞𝚕𝚍𝚗'𝚝 𝚐𝚒𝚟𝚎 𝚝𝚘 𝚏𝚘𝚛𝚐𝚎𝚝 𝚊 𝚝𝚑𝚒𝚗𝚐 𝚘𝚛 𝚝𝚠𝚘 𝚗𝚘𝚠. 𝙼𝚎𝚖𝚘𝚛𝚢 𝚐𝚒𝚟𝚎𝚜 𝚖𝚘𝚖𝚎𝚗𝚝𝚜 𝚒𝚖𝚖𝚘𝚛𝚝𝚊𝚕𝚒𝚝𝚢, 𝚋𝚞𝚝 𝚏𝚘𝚛𝚐𝚎𝚝𝚏𝚞𝚕𝚗𝚎𝚜𝚜 𝚙𝚛𝚘𝚖𝚘𝚝𝚎𝚜 𝚊 𝚑𝚎𝚊𝚕𝚝𝚑𝚢 𝚖𝚒𝚗𝚍. 𝙸𝚝'𝚜 𝚐𝚘𝚘𝚍 𝚝𝚘 𝚏𝚘𝚛𝚐𝚎𝚝."`
 
-<p align="center"><img src="https://sun9-34.userapi.com/s/v1/ig2/799I7zbBHCtd86yGP-yvv03IVsxuSY6ktGJln8yzOM0Xb9MZIFYWG3NLNwJsm-pZsQjpP0-Q3sWp5u02s9Sah1xy.jpg?quality=95&as=32x15,48x22,72x34,108x50,160x74,240x112,360x168,480x223,540x251,640x298&from=bu&u=gLrrdye6zGwcYtsUXKbjVz5dF4ywGRvIBIJp_ifF908&cs=640x0" width="2000"></p>
- <img src="https://c.tenor.com/VTJqEYl5xwQAAAAC/tenor.gif" width="1200"/>
+<p align="center"><img src="https://camo.githubusercontent.com/23d77b58b3e4d9e2bbac245d8548294707e914528aaf305f2bf3fad217810b39/68747470733a2f2f6d656469612e74656e6f722e636f6d2f6e65525a726f6a6c66496341414141692f646976696465722d6165737468657469632e676966" width="1200"/>
 </p>
-<img align="right" src="https://sun9-32.userapi.com/s/v1/ig2/jiOaYbv2vRHg2w57SPLT3Tc2u9cyTh_-4wZ9eh-eht8hURcDbQENFosynTrQ7VH6hiP33S4fejghURu5OCqMRiBW.jpg?quality=95&as=32x33,48x49,72x73,108x110,160x163,240x245,360x367,480x490,540x551,640x653&from=bu&u=880D3x_htBOHq-sjCms89QIiaea0ZzAyquharYc9pO8&cs=640x0" witdh="450" height="560">
+<img align="right" src="https://sun9-56.vkuserphoto.ru/s/v1/ig2/4e7XZxu5fJqAo_dGbMSJmdS4GBs8fjTD2DFOREP-pQp-R4NAXoMrbcgC0dI_JqMG2SpeTiYdDqLNW733DzValzCC.jpg?quality=95&as=32x43,48x64,72x96,108x144,160x213,240x320,360x480,480x640,540x720,640x853,720x960,1080x1440,1280x1707,1440x1920,1920x2560&from=bu&cs=1920x0" width="500"/>
 
 
-$𝙶𝚎𝚕𝚢𝚊$ / $𝙿𝚑𝚊𝚜𝚎𝚛$ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;𝟸𝟶 $𝚢𝚎𝚊𝚛𝚜$ $𝚘𝚕𝚍$ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $𝙷𝚎$ / $𝚂𝚑𝚎$
+𝙶𝚎𝚕𝚢𝚊 / 𝙿𝚑𝚊𝚜𝚎𝚛 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;𝟸𝟶 𝚢𝚎𝚊𝚛𝚜 𝚘𝚕𝚍 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 𝙷𝚎 / 𝚂𝚑𝚎
 <details>
 <summary>$About me$ !  </summary>
 $i'm$ $a$ $very$ $easy$ $going$ $person$ $and$ $i$ $like$ $a$ $lot$ $of$ $fandoms$ $so$ $don't$ $be$ $afraid$ $to$ $write$, $it$ $will$ $never$ $bother$ $me$.
@@ -27,9 +26,7 @@ $verity$ ; $hannibal$ ; $supernatural$ ; $s.t.a.l.k.e.r$ ; $metro$ ; $horror$ $m
 $basic$ $dni$ $criteria$. ($if$ $you$ $tolerate$ $or$ $support$ $any$ $of$ $it$) $spawnism$ $and$ $anyone$ $who$ $endorses$ $and$ $support$ $any$ $kind$ $of$ $cults$. $i$ $don´t$ $rlly$ $fw$ $roleplay$ $accounts$. $any$ $kind$ $of$ $ships$. $i$ $do$ $it$ $with$ $my$ $beautiful$ $pookie$ $wookie$, $not$ $you$
 </details>
 
-
- <img src="https://c.tenor.com/VTJqEYl5xwQAAAAC/tenor.gif" width="1200"/>
 </p>
- <img src="https://psv4.userapi.com/s/v1/d2/0pgazStjd4tTupvNKksUNzKYODb5c-jyAB2Hd986mldqeL-zNnn_c_MF5oylsAx6qf5NSC1cQrQqYVPl-i2f-sXaGgiPHnEQraTW9fn1bTi1hpse9w34FsNgsBH2lIIpWHwINF9vz8Nt/GIF_20260709_232310_572.gif" width="1200"/>
- <p align="center"><img src="https://i.pinimg.com/originals/a9/c0/69/a9c069b8ebe2a8aa59d5d5875c1af2e6.png?nii=t" width="1000">
-  <img src="https://komarev.com/ghpvc/?username=qphsrnotfound&label=YOU+MINE&color=c2cc6c&style=flat-square" alt="$YOU$ $MINE$" />
+ <img src="https://camo.githubusercontent.com/23d77b58b3e4d9e2bbac245d8548294707e914528aaf305f2bf3fad217810b39/68747470733a2f2f6d656469612e74656e6f722e636f6d2f6e65525a726f6a6c66496341414141692f646976696465722d6165737468657469632e676966" width="1200"/>
+ <p align="center"><img src="https://sun9-63.vkuserphoto.ru/s/v1/ig2/AptOMn6SZaI_kwID0L0sbSPcSPnsx-Y__t1OOg95v73A7wLQ2VCSt1Q962f7cIOAtfD0I69IQ-iey6u_zaiVzDxs.jpg?quality=95&as=32x18,48x27,72x40,108x61,160x90,240x135,360x202,480x270,540x304,640x360,720x405,1080x607,1280x720,1440x810,2560x1440&from=bu&cs=2560x0" width="1000">
+  <img src="https://komarev.com/ghpvc/?username=qphsrnotfound&label=YOU+MINE&color=224c4e&style=flat-square" alt="$YOU$ $MINE$" />
